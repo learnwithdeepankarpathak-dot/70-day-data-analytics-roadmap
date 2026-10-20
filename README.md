@@ -70,11 +70,6 @@ Every day tells you what to learn, gives you a free resource and a task, and ask
 
 Share your tracker on your story with **#70DaysWithDeepankar** and tag **@datawithdeepankar**. I reshare a few streaks every week.
 
-## Want to connect with me?
-
-Stuck, or not sure where to start? Fill this short form and I will get back to you with guidance, free resources and updates:
-
-**[Fill the form](PASTE_YOUR_GOOGLE_FORM_LINK_HERE)**
 
 ## Follow
 
